@@ -16,7 +16,7 @@
 
 点击访问：<a href="https://dy10-09.pages.dev/">抖音走光</a>
 
-点击访问：<a href="https://dy2-10.pages.dev/">抖音成人版</a>
+点击访问：<a href="https://dy2-10.pages.dev/">抖音成人版网站</a>
 
 点击访问：<a href="https://dy1-10.pages.dev/">抖音成年版</a>
 
